@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tauheed-R34 aka Tauheed Sayyed.
+- 👀 I’m interested in AI functionality and its implementation.
+- 🌱 I’m currently pursuing diploma in Information Technology from Navjeevan Education Society's Polytechnic Bhandup.
+- 📫 How to reach me tauheeds1940@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like to play video games alot.
